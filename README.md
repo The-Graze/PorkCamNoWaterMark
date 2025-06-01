@@ -2,4 +2,4 @@ This guy was annoying me smapping my dms and made a Mod to make Grate to a cheat
 
 https://github.com/Pokruk/CameraMod
 
-this is said camera, Ngl Don't use it the LIV camera is Perectly find, i just posted this for those unfortnate enough to want to use it lol
+this is said camera, Ngl Don't use it the LIV camera is Perectly fine, i just posted this for those unfortnate enough to want to use it lol
